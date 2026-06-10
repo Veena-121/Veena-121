@@ -9,4 +9,5 @@ If i imagine something there's a high chance i'll build it ,fully or not.
 
 ⚡ Fun fact:
 - I procastinated setting my profile so much that a lot of projects just went away so i'll start documenting nowww
+- I like to make things end to end ( just i have a lil too many ideass!!!)
 - I pet steet dogs and I absolutely love animals.
